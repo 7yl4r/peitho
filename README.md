@@ -1,4 +1,4 @@
 peitho
 ======
 
-automated social media agent 
+automated social media goddess of persuasion 
